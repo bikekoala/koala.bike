@@ -2,4 +2,4 @@
 
 - Weibo [https://weibo.com/BikeKoala](https://weibo.com/BikeKoala)
 
-- 飛魚秀回放 [http://zaoaoaoaoao.com](http://zaoaoaoaoao.com)
+- 飛魚秀回放 [http://Zaoaoaoaoao.com](http://zaoaoaoaoao.com)
